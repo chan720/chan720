@@ -23,5 +23,5 @@ My expertise extends to **JavaScript, and AI-driven automation**, with a strong 
 
 ## 📫 Connect With Me  
 🔗 [LinkedIn](https://www.linkedin.com/in/faisal-chan-37334a2a6/).
-🔗 [Upwork]([https://www.upwork.com/freelancers/~your-profile](https://www.upwork.com/freelancers/~014e5a4bfe8c8c17d0))  
+🔗 [Upwork](https://www.upwork.com/freelancers/~014e5a4bfe8c8c17d0)  
 📧 Email: faisal720chan@gmail.com  
